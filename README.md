@@ -1,0 +1,1 @@
+# LP_ICT9Ruby_Q4Quiz2_Galope_Cara
